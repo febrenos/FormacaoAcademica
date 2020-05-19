@@ -1,1 +1,1 @@
-# New-curriculo
+# curriculo
