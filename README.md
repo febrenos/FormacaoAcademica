@@ -1,2 +1,2 @@
 # Curriculo
-Seja Bem vindo, deixarei aqui meu curriculo todos meus certificados
+Seja bem vindo, deixarei aqui meu curriculo todos meus certificados
